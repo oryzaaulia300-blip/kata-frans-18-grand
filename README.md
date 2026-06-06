@@ -11,3 +11,5 @@ Anggota kelompok:
 4.Billiam Agsa Tatema Hia 251401110
 
 5.Frans Eikel Martogi Simanulang 251401134
+
+LInk yt :https://youtu.be/L9aY-yiWatI?si=btqs0rWTnIYVUaN2

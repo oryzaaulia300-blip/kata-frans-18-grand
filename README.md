@@ -1,5 +1,7 @@
-kata frans 18 grand
+#Kata frans 18 grand
+
 Anggota kelompok:
+
 1.Ibnu Ad'ha Hasibuan 251401116
 2.Dwaia Prananta Ginting 251401128
 3.Oryza Aulia Ramadhan Anafin 251401107
